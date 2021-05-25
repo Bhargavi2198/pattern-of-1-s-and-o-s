@@ -1,0 +1,1 @@
+# pattern-of-1-s-and-o-s
